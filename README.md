@@ -42,7 +42,7 @@ Sahand University of Technology, Iran
 ## 📫 Connect
 
 - GitHub: [@karasaeedi](https://github.com/karasaeedi)
-- LinkedIn: [*Add your LinkedIn profile URL*](https://www.linkedin.com/in/kara-saeedi-443692284/)
+- LinkedIn: [*Kara-saeedi*](https://www.linkedin.com/in/kara-saeedi-443692284/)
 
 ---
 
